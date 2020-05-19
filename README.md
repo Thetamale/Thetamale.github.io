@@ -1,1 +1,0 @@
-# Thetamale.github.io
